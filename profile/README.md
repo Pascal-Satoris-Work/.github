@@ -60,4 +60,3 @@ For inquiries, reach out to us at [hello@pascalsatori.com](mailto:hello@pascalsa
 Website: [https://www.pascalsatori.com](https://pascalsatori.com/)
 
 Follow us on [LinkedIn](https://www.linkedin.com/company/pascalsatori/) and [Instagram](https://www.instagram.com/pascal_satori/?hl=en) for updates and insights. 📢
-
